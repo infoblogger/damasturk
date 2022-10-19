@@ -1,8 +1,8 @@
 <h1 style="text-align: center;">كم ادفع ضريبة الدخل على العقار في تركيا ؟</h1>
 <p style="text-align: justify;">عند بدئك في التفكير في شراء عقار في تركيا أو شراء شقة في تركيا، يجب عليك معرفة كل الأمور التي تعنى بموضوع الشراء، فعليك في البداية التعرف على الإجراءات والأوراق المطلوبة من أجل شراء هذا العقار وصولاً إلى الضرائب المترتبة على العقار.</p>
-<p style="text-align: justify;">وينص قانون ضريبة الدخل في تركيا على وجوب دفع ضريبة الدخل على العقارات التي تم بيعها خلال السنوات الخمس الأولى من شراء العقار وخاصة عند البحث عن <a href="https://damasturk.com/apartments-for-sale/istanbul">شقق</a> <a href="https://damasturk.com/apartments-for-sale/istanbul">للبيع</a> <a href="https://damasturk.com/apartments-for-sale/istanbul">في</a> <a href="https://damasturk.com/apartments-for-sale/istanbul">اسطنبول</a> ، أما إذا تم بيع العقار بعد 5 سنوات فينص القانون أن صاحب العقار غير مسؤول عن أي ضرائب على العقار، وهناك ايضا ضريبة على عوائد إيجار العقارات مقاربة للدخل على العقارات، وفي هذه المقالة سنتعرف على ضريبة الدخل على العقارات في تركيا.</p>
+<p style="text-align: justify;">وينص قانون ضريبة الدخل في تركيا على وجوب دفع ضريبة الدخل على العقارات التي تم بيعها خلال السنوات الخمس الأولى من شراء العقار وخاصة عند البحث عن <a href="https://damasturk.com/apartments-for-sale/istanbul">شقق للبيع في اسطنبول</a> ، أما إذا تم بيع العقار بعد 5 سنوات فينص القانون أن صاحب العقار غير مسؤول عن أي ضرائب على العقار، وهناك ايضا ضريبة على عوائد إيجار العقارات مقاربة للدخل على العقارات، وفي هذه المقالة سنتعرف على ضريبة الدخل على العقارات في تركيا.</p>
 <h2 style="text-align: justify;">ماهي قيمة ضريبة الدخل على العقارات في تركيا ؟</h2>
-<p style="text-align: justify;">يتم احتساب الربح بالفرق بين قيمة العقار عند شرائه وبين قيمته بعد بيعه فمثلا عند البحث عن <a href="https://damasturk.com/apartments-for-sale/turkey">شقق</a> <a href="https://damasturk.com/apartments-for-sale/turkey">للبيع</a> <a href="https://damasturk.com/apartments-for-sale/turkey">في</a> <a href="https://damasturk.com/apartments-for-sale/turkey">تركيا</a> عام 2018 بسعر معلن عنه هو 120 ألف دولار .</p>
+<p style="text-align: justify;">يتم احتساب الربح بالفرق بين قيمة العقار عند شرائه وبين قيمته بعد بيعه فمثلا عند البحث عن <a href="https://damasturk.com/apartments-for-sale/turkey">شقق للبيع في</a> <a href="https://damasturk.com/apartments-for-sale/turkey">تركيا</a> عام 2018 بسعر معلن عنه هو 120 ألف دولار .</p>
 <p style="text-align: justify;">ومن ثم يتم بيعها في عام 2021 بسعر 140 الف دولار حينها يكون الفرق بين سعري الشراء والبيع المعلنين هو 20 الف دولار.</p>
 <p style="text-align: justify;">وهذا يعتبر ربح رأس المال الخاص بك فإنه ينبغي عليك ان تقوم بدفع ضريبة على هذا المكسب وتقع قيمة ضريبة الربح في شرائح حيث تتراوح النسبة ما بين 15% الى 40% وعلى حسب المثال السابق فإنه سيتم اقتطاع 4000 دولار عادة مايساوي 20% من صافي الربح .</p>
 <p style="text-align: justify;">ولكن تم البيع في عام 2023 وما بعده أي بعد خمس سنوات او اكثر لن يتم اقتطاع أي ضريبة ربحية .</p>
@@ -12,7 +12,7 @@
 <p style="text-align: justify;">كما يمكن القيام بتسديد هذه المدفوعات من خلال استخدام تطبيقات الحكومة التي قامت الدولة التركية بإطلاقها لتسهيل إجراءات الدفع .</p>
 <p style="text-align: justify;">كما يمكن القيام بذلك من خلال الدفع الإلكتروني وذلك عبر موقع دفع الضرائب التركي .</p>
 <h2 style="text-align: justify;">ماهي أنواع الضرائب على العقار في تركيا ؟</h2>
-<p style="text-align: justify;">هي عبارة عن مبالغ معينة يقوم بدفعها كل من المشتري والبائع لدائرة الضرائب عند شراء <a href="https://damasturk.com/property-for-sale/turkey">العقار</a> <a href="https://damasturk.com/property-for-sale/turkey">في</a> <a href="https://damasturk.com/property-for-sale/turkey">تركيا</a> أو نقل ملكيته .</p>
+<p style="text-align: justify;">هي عبارة عن مبالغ معينة يقوم بدفعها كل من المشتري والبائع لدائرة الضرائب عند شراء <a href="https://damasturk.com/property-for-sale/turkey">العقار في تركيا</a> أو نقل ملكيته .</p>
 <p style="text-align: justify;">وأنواع الضرائب هي :</p>
 <h3 style="text-align: justify;">1.&nbsp;&nbsp;&nbsp; قيمة الضريبة المضافة على العقارات في تركيا</h3>
 <p style="text-align: justify;">وتتراوح قيمتها من 1 الى 18% من القيمة الاجمالية للعقار وهي يتم دفعها لمرة واحدة فقط عند انهاء اجراءات التملك كما يتم تحديد قيمتها حسب معايير مثل الموقع الجغرافي للعقار ونوعه وسعر المتر المربع الواحد حيث يتم تحديد ضريبة القيمة المضافة وفق صافي مساحة العقار وليس مساحته الإجمالية .</p>
@@ -30,3 +30,6 @@
 <h4 style="text-align: justify;">3.&nbsp;&nbsp;&nbsp; أن يتم الحصول على العقار عن طريق التبرع .</h4>
 <h4 style="text-align: justify;">4.&nbsp;&nbsp;&nbsp; أن يكون الربح أقل عن الحد الادنى المحدد على معدلات الضريبة لتلك السنة .</h4>
 <p style="text-align: justify;">&nbsp;</p>
+<div id="gtx-trans" style="position: absolute; left: 7px; top: 749.477px;">
+<div class="gtx-trans-icon">&nbsp;</div>
+</div>
